@@ -92,6 +92,3 @@
 
 [LEGO City Jungle Explorers Jungle Buggy 60156](https://www.amazon.com/gp/product/B07146WDQZ)
 
-![image](https://user-images.githubusercontent.com/34273904/224826952-6aea7daa-b2de-4003-9b1a-a725c982a012.png)
-
-
