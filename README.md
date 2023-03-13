@@ -2,7 +2,7 @@
 
 [LEGO City Arctic Outpost 60035](https://www.amazon.com/gp/product/B00IGNZZN0/ref=olp-opf-redir?aod=1)
 
-[Lego City - Police Station - 60047](https://www.amazon.com/gp/product/B00GSPF9NE/ref=olp-opf-redir?aod=1)
+[LEGO City - Police Station - 60047](https://www.amazon.com/gp/product/B00GSPF9NE/ref=olp-opf-redir?aod=1)
 
 [LEGO City High-speed Passenger Train 60051](https://www.amazon.com/gp/product/B00J4S6PGC/ref=olp-opf-redir?aod=1)
 
